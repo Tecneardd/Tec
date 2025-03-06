@@ -1,2 +1,1 @@
-# Tec
-Sup this is my code and programs
+Read pls Before Use : this programm was created with ai cus im to bad to code and also it could trigger windows antivirus 
