@@ -1,1 +1,1 @@
-Read pls Before Use : this programm was created with ai cus im to bad to code and also it could trigger windows antivirus 
+Read pls Before Use : this programm could trigger windows antivirus 
